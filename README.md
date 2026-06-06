@@ -1,4 +1,4 @@
-# Welcome to my Shopify site
+# Welcome to Lovetoy® Official Store
 
 Shop LOVETOY’s collection of thoughtfully designed intimacy products.Premium quality, discreet shipping, and designs made to feel right.
 
