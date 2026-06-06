@@ -4,7 +4,7 @@ Shop LOVETOY’s collection of thoughtfully designed intimacy products.Premium q
 
 ## Quick Access
 
-* **Click here to visit our website:** [Shopify Official Website](https://buylovetoy.com/)
+* **Click here to visit our website:** [Loveoy](https://buylovetoy.com/)
 
 * **Direct URL:** <https://buylovetoy.com/>
 
