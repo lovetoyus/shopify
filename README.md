@@ -46,14 +46,9 @@ Featuring adjustable accessories and beginner-friendly options designed to suppo
 
 ## Why Choose LOVETOY
 
-Premium quality materials
-
-Body-safe product selection
-
-Discreet packaging and shipping
-
-Responsive customer support
-
-Carefully curated collections
-
-Secure shopping experience
+* Premium quality materials<br/>
+* Body-safe product selection<br/>
+* Discreet packaging and shipping<br/>
+* Responsive customer support<br/>
+* Carefully curated collections<br/>
+* Secure shopping experience
