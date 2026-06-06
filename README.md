@@ -1,4 +1,4 @@
-<img width="1438" height="524" alt="image" src="https://github.com/user-attachments/assets/234891c9-e5e0-4f84-bfae-ebdc3e53abcd" /># Welcome to Lovetoy® Official Store
+# Welcome to Lovetoy® Official Store
 
 Shop LOVETOY’s collection of thoughtfully designed intimacy products.Premium quality, discreet shipping, and designs made to feel right.
 
